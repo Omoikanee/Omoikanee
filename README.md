@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Omoikanee
+- 👀 I’m interested in Robotics, Philosophy, Content Creating/Comedy
+- 🌱 I’m currently learning Robotics, Philosophy, Content Creating/Comedy
+- 💞️ I’m looking to collaborate on Robotics, Philosophy, Content Creating/Comedy
+- 📫 How to reach me Robotics, Philosophy, Content Creating/Comedy
+- love you lmao
