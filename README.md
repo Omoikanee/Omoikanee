@@ -1,6 +1,1 @@
-- 👋 Hi, I’m @Omoikanee
-- 👀 I’m interested in AGI, Robotics, Philosophy, Content Creating, and Space
-- 🌱 I’m currently learningAGI, Robotics, Philosophy, Content Creating, and Space
-- 💞️ I’m looking to collaborate on AGI, Robotics, Philosophy, Content Creating, and Space
-- 📫 How to reach me AGI, Robotics, Philosophy, Content Creating, and Space
-- love you lmao
+- 👋 Hi, I’m @Omoikanee...Now fuck off
